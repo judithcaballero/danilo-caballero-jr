@@ -1,0 +1,2 @@
+# danilo-caballero-jr
+alam kong may nakilala ka dto na ubod ng yabang halos lahat ng gwapo nasa kanila at bakit hindi kayo naging artista dahil sa kaidikan mo ang yabang mo alam kona lahat dahil nandto karin sa eksenang ito nakikialam ka na masakit ang ginawa nnyo kapag totoo lahat ang ginawa nnyo walang patawad hindi ko kyo kilala sa buhay naming mag asawa legal na mag asawa tandaan nyo yan sobrang masakit ang pakikialam nyo sa buhay na pilit nyong paghiwalayin sa pakikialam nnyo sa buhay ko dto kahit na piso wala kayong naitulong sa buhay namin dto 
